@@ -3,15 +3,15 @@
 
 [【日本Apple ID共享账号每日更新】](https://docs.applexp.com/free-accounts)
 
-#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.com/)
+#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://shop.muooy.com/)
 
-#### 购买日本独享苹果ID账号地址：[【 点击进入购买】](https://juzixp.com/buy/22)
+#### 购买日本独享苹果ID账号地址：[【 点击进入购买】](https://shop.muooy.com/buy/22)
 
 
 
-[![服务类型](https://img.shields.io/badge/服务-日本区%20Apple%20ID-blue)](https://juzixp.com)  
-[![购买支持](https://img.shields.io/badge/支持-注册·购买·共享-green)](https://juzixp.com)  
-[![礼品卡](https://img.shields.io/badge/礼品卡-土耳其-yellow)](https://juzixp.com)
+[![服务类型](https://img.shields.io/badge/服务-日本区%20Apple%20ID-blue)](https://shop.muooy.com)  
+[![购买支持](https://img.shields.io/badge/支持-注册·购买·共享-green)](https://shop.muooy.com)  
+[![礼品卡](https://img.shields.io/badge/礼品卡-土耳其-yellow)](https://shop.muooy.com)
 
 ---
 
